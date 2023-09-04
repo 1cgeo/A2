@@ -1,1 +1,1 @@
-https://1cgeo.github.io/test-ar/
+https://1cgeo.github.io/A2/
